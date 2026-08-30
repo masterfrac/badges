@@ -1,1 +1,1 @@
-# badges time to boom
+# time to achieve badges
